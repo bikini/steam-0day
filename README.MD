@@ -5,5 +5,5 @@ PROOF: https://imgur.com/a/7LGsmcM proof in the steam app of me being logged int
 EXAMPLES: 
 https://imgur.com/a/uOZzhbe
 
-Only a small sample. Contact @skeptical on discord if interested in more information.
+Only a small sample. Contact @9l on discord if interested in more information.
 
